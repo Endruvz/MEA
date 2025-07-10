@@ -1,1 +1,1 @@
-# Croatian Slovenian hackathon
+# Croatian Slovenian EU hackathon 2025
